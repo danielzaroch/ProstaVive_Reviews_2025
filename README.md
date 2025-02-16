@@ -326,12 +326,7 @@ Try ProstaVive and experience the difference yourself!
 
 <p align="center">
   <a href="https://c3d0eabiuzg88tekxh0az8fz8j.hop.clickbank.net">
-    <img src="<p align="center">
-  <a href="https://c3d0eabiuzg88tekxh0az8fz8j.hop.clickbank.net">
-    <img src="https://i.imgur.com/PyP5N6z.png" width="800">
-  </a>
-</p>
-" width="800">
+    <img src="https://i.imgur.com/k0RpZ3h.png" width="800">
   </a>
 </p>
 
